@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/97/57/06/975706ca792ae23ac3d8c8c732bc9655.jpg">
+  <img src="https://github.com/dreamc4tcher/-/blob/9e7a79e16533597db525be08152760d8ef87dd80/0982abb3b0995cf3292cfeca7eb4cd51.jpg">
 </p>
 
 
-<h2 align="center">"𝙄 𝙬𝙞𝙡𝙡 𝙡𝙞𝙫𝙚 𝙖 𝙡𝙞𝙛𝙚 𝙛𝙤𝙧 𝙗𝙤𝙩𝙝 𝙤𝙛 𝙪𝙨."</h2>
+
 
 
